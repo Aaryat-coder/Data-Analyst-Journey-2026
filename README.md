@@ -1,4 +1,3 @@
-# Data-Analyst-Journey-2026
 # Data Analyst Journey 2026 🚀
 
 ## About Me
